@@ -1,1 +1,0 @@
-# Jourloy-YandexPracticumGame
